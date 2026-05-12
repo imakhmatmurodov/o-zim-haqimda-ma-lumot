@@ -1,1 +1,0 @@
-# o-zim-haqimda-ma-lumot
